@@ -155,7 +155,7 @@ Medicion de voltaje aplicando superposición
 
 ## 5.  VIDEO
 
-https://youtu.be/SN4g09sDlCs
+https://youtu.be/xBNK-lMqy6I
 
 ## 6.  CONCLUCIONES 
 
